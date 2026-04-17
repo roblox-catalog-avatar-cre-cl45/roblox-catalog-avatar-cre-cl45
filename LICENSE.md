@@ -1,4 +1,4 @@
-
+professional Script for roblox king legacy is the best roblox king legacy Script, featuring auto-sell and speed. Safe and powerful for all your needs.
 
 
 ---
